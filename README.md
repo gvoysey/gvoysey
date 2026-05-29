@@ -1,6 +1,6 @@
 >Having recalled the principles that shine a light on Social Doctrine, I would now like to focus on certain challenges that profoundly shape our way of living today. 
 >
->The biblical image accompanying these reflections is that of a construction project.
+>The image accompanying these reflections is that of a construction project.
 >
 >On the one hand, there is the Tower of Babel, where collective effort follows a plan that dominates and ultimately dehumanizes. 
 >
